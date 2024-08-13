@@ -1,1 +1,0 @@
-Logo's to come soon
